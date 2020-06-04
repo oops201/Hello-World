@@ -1,4 +1,4 @@
 # Hello-World
 just nothing
 
-new begining!
+new begining! learn shomthing new.
